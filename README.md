@@ -16,7 +16,7 @@ Discord: NoTelling#9625
 
 Roblox Alt: Extra_MunDane
 
-Discord Server: W.I.P
+Discord Server: https://discord.gg/RbqnVsxrwz
 
 GMail: NoTellingYT@gmail.com
 
